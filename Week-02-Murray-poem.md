@@ -1,6 +1,6 @@
-**Poem:** 
+**Poem response: Janet Murray, Hamlet on the Holodeck:**  
 
-**_The New Medium Epidemic_**
+**_The New Medium Epidemic_**  
 Innovation is imprecise  
 Birthed from Man with flawed hands,  
 Am I Reality, or simply yours imagined?  
