@@ -1,1 +1,9 @@
+# Chris Salter, "Entangled:" Reading Response  
 
+
+  What I gathered from Chris Salter’s, “Entangled,” is that the term _Gesamtkunstwerk_ is art surrounding the impact of senses and emotions rather than the meaning, purpose, or lesson, etc. I have a relative who is deaf whom I have had a multitude of conversations with regarding her understanding and connection to music. Being deaf, she has a heightened sense of feeling the vibrations to hear music rather than listening. A deep/powerful bass is easier to hear for my deaf relative. I believe if we utilize modern technology of music we may pursue _Gesamtkunstwerk_ by tuning the music to a vibration frequency to be more compatible with that of those who are hard of hearing. Perhaps this may create a deeper connection to the music both physically through the vibrations, and for their emotions to hopefully be heightened/enhanced with that connection.
+
+  When applying _Gesamtkunstwerk_ to works of art within the Rhizome Anthology,  ***”Automatic Rain,” by JODI (1995)*** struck me the most regarding the meaning of the word/term. When viewing this piece, you see the technology vs. nature aspect to surround the viewer within the world of both at the same time while still feeling them separately. There is a picture of rain on what appears to be a window or screen of some sort. This picture engulfs the viewer with senses familiar with rain. I can hear the rain falling and the droplets hitting the window. I can feel the rain’s wetness as the piece entices me to drag my finger through the organic circles of water. I am able to connect such senses with the technology aspects of the piece as well. The picture of rain is formatted on a digital platform, this as a result triggers the sounds of digital notifications/buttons that I can hear through this piece.I can also feel the keyboard/mousepad as if I were the one displaying the piece on my own desktop.
+
+
+  <!-- Total work of art = Gesamtkunstwerk -->
