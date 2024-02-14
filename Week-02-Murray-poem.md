@@ -14,8 +14,8 @@ _But I know you._
 
 
 **The Lumiere Brothers**
-![Lumiere Brothers](IMG_3128.jpg.jpg)
+![Lumiere Brothers](LumiereBrothers.jpg)
 
 
 **War and Peace**
-![War and Peace](IMG_3129.jpg.jpg) 
+![War and Peace](War&Peacejpg)
