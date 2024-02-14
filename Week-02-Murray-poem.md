@@ -1,4 +1,4 @@
-**Poem response: Janet Murray, Hamlet on the Holodeck:**  
+# Poem response: Janet Murray, "Hamlet on the Holodeck"  
 
 **_The New Medium Epidemic_**   
 
