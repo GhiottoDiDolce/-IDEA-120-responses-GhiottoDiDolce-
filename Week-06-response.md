@@ -1,5 +1,8 @@
+<h3>IDEA 120: Week 06 Reading Response</h3>
+
+
 After reading chapter 9 of Janey Murray’s _**“Hamlet on the Holodeck,”**_
-and the YouTube video regarding “Mandalorian,” I certainly believe Murray’s
+and the YouTube _**Insider**_ video regarding _**Mandalorian**_ I certainly believe Murray’s
 predictions about internet television and inhabiting virtual environments were
 successful. A key term used in Janet Murray’s reading was _*“encapsulation.”*_ The
 author explains the differences of both _**temporal**_ and _**spatial**_ encapsulation.
