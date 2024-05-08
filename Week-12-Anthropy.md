@@ -1,7 +1,7 @@
 **<h3>Week 12: Game Design For Artists</h3>**
   
   
-  Anna Athropy’s reading of “Rise of the Videogame Zinesters,” chapter 3 and 4 very well explains how accessibility in gaming and coding can help improve video games.
+  Anna Anthropy’s reading of “Rise of the Videogame Zinesters,” chapter 3 and 4 very well explains how accessibility in gaming and coding can help improve video games.
 Athropy emphasizes upon the multiple benefits that are produced from utilizing gaming and coding accessibility, including: a wider range and variety of voices 
 participating in the creation for many other different voices as well, this also references the also growing abundance of diversity not only for the voices including,
 but also for the products created. By providing such “user-friendly” tools to improve video games, the result leads to more progressive game development and audiences
