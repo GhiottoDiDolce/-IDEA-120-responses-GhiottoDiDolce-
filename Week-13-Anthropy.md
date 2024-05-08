@@ -1,6 +1,6 @@
-<h3>WEEK 13: Anna Athropy</h3>
+<h3>WEEK 13: Anna Anthropy</h3>
 
-Anna Athropy’s reading of, “Rise of Videogame Zinesters,” discusses key concepts regarding the new age of gaming due to advancing technology and/or tools
+Anna Anthropy’s reading of, “Rise of Videogame Zinesters,” discusses key concepts regarding the new age of gaming due to advancing technology and/or tools
 we have access to today. Specifically in chapter 3, the author introduces what is referred to as “disempowerment fantasies,” which focuses on the importance
 of players experiencing struggles and vulnerabilities rather than the traditional power-seeking gaming styles. My initial reaction was being very intrigued by
 this concept, and was curious where I may have seen it before, or how I can successfully identify it in other games?  
